@@ -2,7 +2,7 @@
 
 ### Sou uma profissional em busca de uma colocação em Desenvolvimento e Tecnologia. 
 
-Sou Pcd há 13anos, vive experiências que são impossíveis de resumir em um texto. 
+Sou Pcd há 13anos, vive experiências que são impossíveis de se resumir em um texto. 
 
 Formada em licenciatura em **Matemática e Automação Industrial**. 
 
